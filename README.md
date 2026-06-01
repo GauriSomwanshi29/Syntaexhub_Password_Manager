@@ -103,10 +103,8 @@ Developed as part of the Cyber Security Internship Program by Syntecxhub.
 
 ## 👩‍💻 Author
 
-**Gauri Somwanshi**  
-Cyber Security Student 🚀
+**Gauri Somwanshi❤️**  
 
-GitHub: https://github.com/gauri634-tech
 
 ---
 
